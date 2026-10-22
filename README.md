@@ -1,4 +1,4 @@
-# M3UPT
+
 
 ## 📺 Main TV channels
 
